@@ -4,9 +4,10 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 # ¡Hola Mundo!
+
 **Ayelén Góngora**
 
-**Universidad Nacional de las Artes - Licenciatura en Artes Multimediales**
+**Universidad Nacional de las Artes - Licenciatura en Artes Multimediales**✨
 
 **Buenos Aires, Argentina. 2022.**
 
